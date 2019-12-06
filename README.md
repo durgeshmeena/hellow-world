@@ -1,2 +1,3 @@
 # hellow-world
-just new rpository
+heloow durga is here.. 
+what going on 
